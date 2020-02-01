@@ -1,4 +1,4 @@
-# We-Condemn-the-Cursed-Provokator-Loannis-Lagos-Who-Disrespected-Our-Flag
+# We-Condemn-the-Cursed-Provocateur -Loannis-Lagos-Who-Disrespected-Our-Flag
 
 Dear  Parliament Speaker and Members;
 
@@ -6,7 +6,7 @@ Dear  Parliament Speaker and Members;
 
 Peace in the Country Peace in the World. We are a nation who wrote Peace in history with golden letters.
 
-ATATÜR, who raised the flag of Greece laid under Ataturk's feet after the invasion of Izmir, said that the nation cannot be trampled, and the importance of the honor and the honor of the flag representing the Nations in the world in war and peace.
+ATATÜRK, who raised the flag of Greece laid under Ataturk's feet after the invasion of Izmir, said that the nation cannot be trampled, and the importance of the honor and the honor of the flag representing the Nations in the world in war and peace.
 
 While this was the case, the killing of a Greek soldier who attempted to lower the Turkish Flag in 1996 while climbing the flagpole caused the Kardak cliffs crisis.
 
